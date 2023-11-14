@@ -2,4 +2,4 @@
 
 le chêne un jour dit au roseau
 
-Vous avez bien sujet d'accuser la nature (t'esm oche en gros)
+Vous avez bien sujet d'accuser la nature (t'es moche en gros)
